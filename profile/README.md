@@ -1,4 +1,4 @@
-# Discover the World of Clicker Games!
+# Discover the World of Best Clicker Games!
 
 👉👉 Click to Play [Clicker Games](https://playclickergames.org/)
 
