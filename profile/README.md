@@ -11,6 +11,14 @@ Welcome to the exciting realm of **Clicker Games**, a genre that combines simple
 - [Duck Duck Clicker 3D](https://playclickergames.org/game/duck-duck-clicker-3d)
 - [Candy Clicker](https://playclickergames.org/game/candy-clicker)
 - [Candy Clicker 2](https://playclickergames.org/game/candy-clicker-2)
+- [Bear Clicker](https://playclickergames.org/game/bear-clicker)
+- [Chill Guy Clicker](https://playclickergames.org/game/chill-guy-clicker)
+- [Kiwi Clicker](https://playclickergames.org/game/kiwi-clicker)
+- [Roblox Clicker](https://playclickergames.org/game/roblox-clicker)
+- [Planet Clicker](https://playclickergames.org/game/planet-clicker)
+- [Cookie Clicker](https://playclickergames.org/game/cookie-clicker)
+- [Easter Clicker](https://playclickergames.org/game/easter-clicker)
+- [Fruit Clicker](https://playclickergames.org/game/fruit-clicker)
 
 ## How to Play Clicker Games
 
